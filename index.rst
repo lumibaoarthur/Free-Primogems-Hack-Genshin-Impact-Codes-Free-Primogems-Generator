@@ -3,6 +3,8 @@
 
 19 seconds ago - Okay now that you’re here, lets get ready to utilize this method! Genshin Impact Free Unlimited Generation Crystals survey: Genshin Impact Free Unlimited Generation Crystal gives you Comprehensive data about the Utilization of Genshin Impact Free Produce gem.
 
+[Click Here To get Free primogems & Crystals](https://gamesyo.xyz/5a3baf0)
+
 =============================================================
 
 **GET FREE PRIMOGEMS & CRYSTALS :: https://gamesyo.xyz/5a3baf0**
