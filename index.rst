@@ -1,4 +1,4 @@
-##{Ganyu}~Free Primogems Generator Hack | Genshin Impact Free Primogems Codes 2021 {Tamod}*9
+## {Ganyu}~Free Primogems Generator Hack | Genshin Impact Free Primogems Codes 2021 {Tamod}*9
 
 [LAST UPDATED: September 10, 2021] ( Online Members: 1984) [VERSION 4.29]
 
